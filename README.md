@@ -5,12 +5,26 @@ Information about the full version
 It is multilingual and works on all mobile networks worldwide. Through this application, you can create a contact file containing any number you want. Once you add it to your mobile, you will find your WhatsApp friends increasing to hundreds of thousands, and your Facebook page and other sites will appear to thousands of pages due to your contacts.
 ## All social media applications are affected by this application because it increases the number of contacts that appear in the application.
 
-زيادة الأصدقاء على تطبيقات التواصل الاجتماعي   Increase friends on social media applications
+زيادة الأصدقاء على تطبيقات التواصل الاجتماعي   
+Increase friends on social media applications
+
 
 ## هذة النسخة المجانية تعمل عل شبكات محمول مصر فقط فودافون اتصالات اورنج والنسخة الكاملة تعمل على كل شبكات العالم 
 معلومات عن النسخة الكاملة 
 وهى متعددة اللغات تعمل على كل شبكات المحمول فى العالم تستطيع من خلال هذا التطبيق الذى ينشا لك ملف جهات اتصال يحتوى على اى عدد تريدة بمجرد اضافتة الى الموبايل ستجداصدقاء الواتس ذادو الى مئات الااالاف وستجد صفحتك على الفيس بوك والمواقع الاخرى تظهر لالاف الصفحة بسبب جهات اتصالك 
 ## كل تطبيقات التواصل الاجتماعى عن بكرة ابيها تتاثر بهذا التطبيق لانه يذيد جهات اتصالك التى تظهر لك فى التطبيق 
+ملحوظة التلات ملفات دول يتم تسجيل الارقام التى يتم جلبها حتى لا يتم جلب الارقام مرتين 
+فاذا اردت ان تبدا من جديد ففرغ هذة الملفات 
+
+
+![screen](https://github.com/user-attachments/assets/87791f20-fd36-40da-9bad-8a08b46c48cc)
+
+
+
+
+
+
+
 
 ![aaaf235223](https://github.com/user-attachments/assets/865fd576-defa-4444-8f08-a13c65a9c85f)
 
