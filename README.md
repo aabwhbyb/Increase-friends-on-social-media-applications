@@ -6,3 +6,17 @@
 وهى متعددة اللغات تعمل على كل شبكات المحمول فى العالم تستطيع من خلال هذا التطبيق الذى ينشا لك ملف جهات اتصال يحتوى على اى عدد تريدة بمجرد اضافتة الى الموبايل ستجداصدقاء الواتس ذادو الى مئات الااالاف وستجد صفحتك على الفيس بوك والمواقع الاخرى تظهر لالاف الصفحة بسبب جهات اتصالك 
 
 ![aaaf235223](https://github.com/user-attachments/assets/865fd576-defa-4444-8f08-a13c65a9c85f)
+
+
+## حمل هذة النسخة من هنا تعمل فى نظام لينكس فقط
+
+
+
+
+![download](https://github.com/user-attachments/assets/a85db8c5-516d-48b4-bf28-6982296a96f6)
+
+
+
+<img width="175" height="175" alt="qrcoder" src="https://github.com/user-attachments/assets/b3b54928-0bf6-49db-a993-2a63024f607c" />
+
+https://top4top.io/downloadf-3485bayo91-zip.html
