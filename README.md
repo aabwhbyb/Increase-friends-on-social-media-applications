@@ -1,4 +1,10 @@
 # Increase-friends-on-social-media-applications
+
+## This free version works on Egyptian mobile networks only: Vodafone, Etisalat, and Orange. The full version works on all networks worldwide.
+Information about the full version
+It is multilingual and works on all mobile networks worldwide. Through this application, you can create a contact file containing any number you want. Once you add it to your mobile, you will find your WhatsApp friends increasing to hundreds of thousands, and your Facebook page and other sites will appear to thousands of pages due to your contacts.
+## All social media applications are affected by this application because it increases the number of contacts that appear in the application.
+
 زيادة الأصدقاء على تطبيقات التواصل الاجتماعي   Increase friends on social media applications
 
 ## هذة النسخة المجانية تعمل عل شبكات محمول مصر فقط فودافون اتصالات اورنج والنسخة الكاملة تعمل على كل شبكات العالم 
